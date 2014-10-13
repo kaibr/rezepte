@@ -60,21 +60,21 @@ Ober-/Unterhitze: etwa 180°C
 Heißluft: etwa 160°C
 
 
-### Biskuitteig:
+#### 2. Biskuitteig
 Eier, heißes Wasser schaumig schlagen.
 Zucker und Vanillin-Zucker rein, weitere 2 Minuten schlagen.
 Mehl mit Backpulver und Stärke mischen und kurz auf niedrigster Stufe unterrühren.
 Teig in Springform ab in den Backofen.
 Backzeit: 30 Minuten
 
-### Boden zweimal waagerecht durchschneiden.
+#### 3. Boden zweimal waagerecht durchschneiden.
 
-### Buttercreme:
+#### 4. Buttercreme
 Pudding machen, erkalten lassen.
-
 Butter rühren, Pudding rein, weiterrühren.
 
-### Torte bauen: von unten; Boden,Creme, Boden, Creme, Boden, Creme.
+#### 5. Torte bauen
+Von unten: Boden, Creme, Boden, Creme, Boden, Creme.
 
 Panna Cotta
 -----------
