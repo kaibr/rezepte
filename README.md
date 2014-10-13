@@ -54,7 +54,7 @@ Buttercreme:
 
 
 
-### Vorbereiten:
+#### 1. Vorbereiten
 Boden der Springform fetten und mit Backpapier belegen. Backofen vorheizen.
 Ober-/Unterhitze: etwa 180°C
 Heißluft: etwa 160°C
