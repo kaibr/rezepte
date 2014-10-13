@@ -69,11 +69,11 @@ Backzeit: 30 Minuten
 
 3. Boden zweimal waagerecht durchschneiden.
 
-#### 4. Buttercreme
+4. Buttercreme
 Pudding machen, erkalten lassen.
 Butter rühren, Pudding rein, weiterrühren.
 
-#### 5. Torte bauen
+5. Torte bauen
 Von unten: Boden, Creme, Boden, Creme, Boden, Creme.
 
 Panna Cotta
