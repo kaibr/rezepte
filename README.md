@@ -54,20 +54,20 @@ Buttercreme:
 
 
 
-##### 1. Vorbereiten
+1. Vorbereiten
 Boden der Springform fetten und mit Backpapier belegen. Backofen vorheizen.
 Ober-/Unterhitze: etwa 180°C
 Heißluft: etwa 160°C
 
 
-#### 2. Biskuitteig
+2. Biskuitteig
 Eier, heißes Wasser schaumig schlagen.
 Zucker und Vanillin-Zucker rein, weitere 2 Minuten schlagen.
 Mehl mit Backpulver und Stärke mischen und kurz auf niedrigster Stufe unterrühren.
 Teig in Springform ab in den Backofen.
 Backzeit: 30 Minuten
 
-#### 3. Boden zweimal waagerecht durchschneiden.
+3. Boden zweimal waagerecht durchschneiden.
 
 #### 4. Buttercreme
 Pudding machen, erkalten lassen.
