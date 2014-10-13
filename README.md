@@ -36,7 +36,8 @@ Gut gekühlt servieren
 Buttercremetorte
 -----------------
 
-Springform (Ø 28 cm):
+Springform (Ø 28 cm)
+
 Biskuitteig:
 4 Eier (Größe M)
 3 EL heißes Wasser
@@ -45,6 +46,7 @@ Biskuitteig:
 150 g Weizenmehl
 2 gestrichene Backpulver
 50 g Speisestärke
+
 Buttercreme:
 1 Päckchen Puddingpulver
 80 g Zucker
