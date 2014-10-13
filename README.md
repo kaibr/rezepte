@@ -87,5 +87,13 @@ Raclette
 250g Käse und 400g Kartoffeln pp :-)
 
 
+Pasta Tofu/Zuccini/Aprikosen
+---------------------------------------
+
+Tofu, Zuccini, Aprikosen, Sahne, Safran, Sojasauce, Pasta.
+
+Tofu gut anbraten, mit Sojasauce ablöschen, Zuccini und Aprikosen rein, kurz mit braten, Sahne drüber, Safran ran, kurz aufkochen. 
+
+
 
 
