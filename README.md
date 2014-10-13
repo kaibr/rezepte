@@ -33,3 +33,59 @@ Für die Quarkschicht nacheinander 2 Eier, 180 g Zucker, 750 g Quark und Pudding
 Ca 1 Stunde bei 180 Grad backen, evt. vor zu starker Bräunung nach der Hälfte der Backzeit abdecken.
 Gut gekühlt servieren
       
+Buttercremetorte
+-----------------
+
+Springform (Ø 28 cm):
+Biskuitteig:
+4 Eier (Größe M)
+3 EL heißes Wasser
+150 g Zucker
+1 Päckchen Vanillin-Zucker
+150 g Weizenmehl
+2 gestrichene Backpulver
+50 g Speisestärke
+Buttercreme:
+1 Päckchen Puddingpulver
+80 g Zucker
+500 ml Milch
+250 g weiche Butter
+
+
+
+
+### Vorbereiten:
+Boden der Springform fetten und mit Backpapier belegen. Backofen vorheizen.
+Ober-/Unterhitze: etwa 180°C
+Heißluft: etwa 160°C
+
+
+### Biskuitteig:
+Eier, heißes Wasser schaumig schlagen.
+Zucker und Vanillin-Zucker rein, weitere 2 Minuten schlagen.
+Mehl mit Backpulver und Stärke mischen und kurz auf niedrigster Stufe unterrühren.
+Teig in Springform ab in den Backofen.
+Backzeit: 30 Minuten
+
+### Boden zweimal waagerecht durchschneiden.
+
+### Buttercreme:
+Pudding machen, erkalten lassen.
+
+Butter rühren, Pudding rein, weiterrühren.
+
+### Torte bauen: von unten; Boden,Creme, Boden, Creme, Boden, Creme.
+
+Panna Cotta
+-----------
+
+500ml Sahne,500ml Milch, 5 Blatt Gelatine, 1 Pck Vanillezucker, 1 Stange Vanille, 3 gestr. Essl Zucker
+
+Raclette
+---------
+
+250g Käse und 400g Kartoffeln pp :-)
+
+
+
+
