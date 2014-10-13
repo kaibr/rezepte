@@ -29,7 +29,8 @@ Zuerst aus 3/8 l Milch, 180 g Zucker und Puddingpulver den Pudding für die Deck
 
 Für die Quarkschicht nacheinander 2 Eier, 180 g Zucker, 750 g Quark und Puddingpulver verrühren und in eine gefettete und ausgebröselte Springform füllen.
 
-5 Eiweiß mit einer Prise Salz steif schlagen und vorsichtig unter die Pudding-Eigelbmasse unterheben. Auf die Quarkschicht geben. Die Form wird bis zum Rand voll, beim Backen läuft aber normalerweise nichts über.<br> 
+5 Eiweiß mit einer Prise Salz steif schlagen und vorsichtig unter die Pudding-Eigelbmasse unterheben. Auf die Quarkschicht geben. Die Form wird bis zum Rand voll, beim Backen läuft aber normalerweise nichts über.
+
 Ca 1 Stunde bei 180 Grad backen, evt. vor zu starker Bräunung nach der Hälfte der Backzeit abdecken.
 Gut gekühlt servieren
       
@@ -39,7 +40,7 @@ Buttercremetorte
 Springform (Ø 28 cm)
 
 Biskuitteig:
-4 Eier (Größe M)
+4 Eier
 3 EL heißes Wasser
 150 g Zucker
 1 Päckchen Vanillin-Zucker
