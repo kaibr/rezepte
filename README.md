@@ -98,5 +98,15 @@ Tofu, Zuccini, Aprikosen, Sahne, Safran, Sojasauce, Pasta.
 Tofu gut anbraten, mit Sojasauce ablöschen, Zuccini und Aprikosen rein, kurz mit braten, Sahne drüber, Safran ran, kurz aufkochen. 
 
 
+Frischkäse-Apero-Dinger
+----------------------------------
+
+Kuchenteig, Frischkäse, Spinat.
+
+Quadrate belegen, diagonal falten, mit Gabel festdrücken.
+
+Backen bei 180°C ca 20 min.
+
+
 
 
