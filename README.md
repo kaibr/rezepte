@@ -18,15 +18,15 @@ Goldtröpfchentorte
 ------------------
 28er Springform, 200 g Vollkornmehl, 1 TL Backpulver, 75 g + 150 g + 100 g Zucker, 75 g Butter, 4 Eier, 750 g Magerquark, 1 Vanillezucker, Spritzer Zitronensaft, 150 ml Sonnenblumenöl, Milch
 
-1) <b>Teig.</b> Mehl, Backpulver, 75 g Zucker, Butter, 1 Ei und Prise Salz zu Teig verkneten. 2/3 Teig als Boden in gefettete Springform drücken. Rest Teig zu Rolle formen und am Rand andrücken.
+1. **Teig.** Mehl, Backpulver, 75 g Zucker, Butter, 1 Ei und Prise Salz zu Teig verkneten. 2/3 Teig als Boden in gefettete Springform drücken. Rest Teig zu Rolle formen und am Rand andrücken.
 
-2) <b>Quarkmasse.</b> 3 Eier trennen. Quark, 150 g Zucker, Vanillezucker, Eigelb, Zitronensaft und Öl verrühren. Unter Rühren Milch in kleinen Mengen zugeben, bis eine dünnflüssige Masse entsteht. (Wenn dickflüssig, dann wird die Quarkschicht zu trocken.)
+2. **Quarkmasse.** 3 Eier trennen. Quark, 150 g Zucker, Vanillezucker, Eigelb, Zitronensaft und Öl verrühren. Unter Rühren Milch in kleinen Mengen zugeben, bis eine dünnflüssige Masse entsteht. (Wenn dickflüssig, dann wird die Quarkschicht zu trocken.)
 
-3) <b>Backen 1.</b> Quarkmasse auf Teig giessen. Bei 200°C 50 Minuten backen.
+3. **Backen 1.* Quarkmasse auf Teig giessen. Bei 200°C 50 Minuten backen.
 
-4) <b>Backen 2.</b> Eiweiß steif schlagen. Danach 100 g Zucker einrieseln lassen und vermischen. Baiser auf die heiße Torte streichen. Bei 175°C weitere 20 Minuten backen. 
+4. *Backen 2.* Eiweiß steif schlagen. Danach 100 g Zucker einrieseln lassen und vermischen. Baiser auf die heiße Torte streichen. Bei 175°C weitere 20 Minuten backen. 
 
-Torte abdecken sonst wird die Baiserschicht zäh.
+Torte abdecken, sonst trocknet die Baiserschicht aus und wird zäh.
 
 Eierschecke ohne Teigboden
 ---------------------------
