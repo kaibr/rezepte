@@ -16,7 +16,17 @@ Tiramisu
 
 Goldtröpfchentorte
 ------------------
-200 g mehl, 1 tl backpulver, 75 g + 150 g + 100 g zucker, 75 g butter, 4 eier, 750 g magerquark, 1 p. vanillin-zucker, saft von 1/2 zitrone, 150 ml sonnenblumenöl, milch<br><br>1) <b>Teig.</b> mehl, backpulver, 75 g zucker, butter, 1 ei und prise salz zu einem glatten teig verkneten. ca 30 minuten kalt stellen. 2/3 teig als boden in eine gefettete springform (26 cm) drücken. rest teig zu einer rolle formen und am formrand ca. 4 cm hoch andrücken.<br>2) <b>Quarkmasse.</b> 3 eier trennen. quark, 150 g zucker, vanillin-zucker, eigelb, zitronensaft und öl verrühren. unter rühren milch in kleinen mengen zugeben, bis eine dünnflüssige masse entsteht.<br>3) <b>Backen 1.</b> quark-masse auf den teig in die form streichen. im vorgeheizten backofen (e-herd: 200° C/ umluft: 175° C) 45-50 minuten backen.<br>4) <b>Backen 2.</b> eiweiß steif schlagen. Danach 100 g zucker einrieseln lassen und vermischen. baiser auf die heiße torte streichen. bei 175° C (umluft: 150° C) weitere 20 minuten backen. 
+28er Springform, 200 g Vollkornmehl, 1 TL Backpulver, 75 g + 150 g + 100 g Zucker, 75 g Butter, 4 Eier, 750 g Magerquark, 1 Vanillezucker, Spritzer Zitronensaft, 150 ml Sonnenblumenöl, Milch
+
+1) <b>Teig.</b> Mehl, Backpulver, 75 g Zucker, Butter, 1 Ei und Prise Salz zu Teig verkneten. 2/3 Teig als Boden in gefettete Springform drücken. Rest Teig zu Rolle formen und am Rand andrücken.
+
+2) <b>Quarkmasse.</b> 3 Eier trennen. Quark, 150 g Zucker, Vanillezucker, Eigelb, Zitronensaft und Öl verrühren. Unter Rühren Milch in kleinen Mengen zugeben, bis eine dünnflüssige Masse entsteht. (Wenn dickflüssig, dann wird die Quarkschicht zu trocken.)
+
+3) <b>Backen 1.</b> Quarkmasse auf Teig giessen. Bei 200°C 50 Minuten backen.
+
+4) <b>Backen 2.</b> Eiweiß steif schlagen. Danach 100 g Zucker einrieseln lassen und vermischen. Baiser auf die heiße Torte streichen. Bei 175°C weitere 20 Minuten backen. 
+
+Torte abdecken sonst wird die Baiserschicht zäh.
 
 Eierschecke ohne Teigboden
 ---------------------------
