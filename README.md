@@ -24,7 +24,7 @@ Goldtröpfchentorte
 
 3. **Backen 1.** Quarkmasse auf Teig giessen. Bei 200°C 50 Minuten backen.
 
-4. *Backen 2.** Eiweiß steif schlagen. Danach 100 g Zucker einrieseln lassen und vermischen. Baiser auf die heiße Torte streichen. Bei 175°C weitere 20 Minuten backen. 
+4. **Backen 2.** Eiweiß steif schlagen. Danach 100 g Zucker einrieseln lassen und vermischen. Baiser auf die heiße Torte streichen. Bei 175°C weitere 20 Minuten backen. 
 
 Torte abdecken, sonst trocknet die Baiserschicht aus und wird zäh.
 
