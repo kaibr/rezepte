@@ -17,7 +17,7 @@ Tiramisu
 Goldtröpfchentorte
 ------------------
 28er Springform
-200 g Vollkornmehl, Backpulver, Zucker, Butter, 4 Eier, 750 g Magerquark, 1 Vanillezucker, Spritzer Zitronensaft, 150 ml Sonnenblumenöl, Milch
+200 g Vollkornmehl, Backpulver, Zucker, 75g Butter, 4 Eier, 750 g Magerquark, 1 Vanillezucker, Spritzer Zitronensaft, 150 ml Sonnenblumenöl, Milch
 
 1. **Teig.** Mehl, entsprechend Backpulver, 3 EL Zucker, Butter, 1 Ei und Prise Salz zu Teig verkneten. 2/3 Teig als Boden in gefettete Springform drücken. Rest Teig zu Rolle formen und am Rand andrücken.
 
